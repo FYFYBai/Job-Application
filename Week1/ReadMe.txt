@@ -1,0 +1,1 @@
+Week 1 was too busy, did not submit any cv or connection, sorry.
